@@ -1,2 +1,2 @@
 # patelniravkumar.github.io
-Niravkumar PAtel
+Niravkumar Patel
